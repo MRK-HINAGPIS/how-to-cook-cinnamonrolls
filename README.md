@@ -35,7 +35,7 @@ Preheat the oven to 375°F (190°C) after the rolls have doubled in size. Bake f
 - To make the icing, combine the confectioners' sugar, vanilla extract, and coffee/milk. Drizzle or spread on hot buns.
 
 - Cover leftover frosted or unfrosted rolls tightly and keep at room temperature for up to 3 days or in the refrigerator for up to 5 days.
-## Notes
+### Notes
 
 - Make Ahead Directions: You may make this dough the night before by following step 4. Wrap with plastic wrap and place in the refrigerator overnight. Remove from the refrigerator the next morning and leave to rise for 1 hour in a warm environment. Step 6 will be followed.
 
