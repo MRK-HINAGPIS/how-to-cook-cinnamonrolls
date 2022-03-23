@@ -1,4 +1,4 @@
-# How to cook Cinnamon Rolls
+# How to bake Cinnamon Rolls
 ## This website will guide you how to make Cinnamon rolls.
 
 ![cinnamon roll](https://user-images.githubusercontent.com/99865266/159630630-e1f349bc-ae56-4f29-b462-823ab3d3bae3.jpg)
@@ -49,3 +49,4 @@ Preheat the oven to 375°F (190°C) after the rolls have doubled in size. Bake f
 - Yeast: I strongly advise using instant yeast. You can substitute active dry yeast if you only have active dry yeast. In recipes, both active dry yeast and quick yeast can be used interchangeably (1:1). Active dry yeast rises at a moderate rate, while instant dry yeast rises at a higher rate; active dry yeast will produce a slower rise time.
 
 - Whole milk is best for this dough. Nondairy milk can be used if necessary.
+- Always remember the quote,"Break or make".
